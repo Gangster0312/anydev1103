@@ -7,6 +7,11 @@ And I also have significant experience developing complex production user interf
 
 Also, I've been working with Blockchain technologies for the past few years and have experience with launching Blockchain projects having secure and scalable Ethereum smart contracts at its core.
 
+My main goals when working with you are simple:
+- Clear and consistent communication. I make myself available during all US business hours to provide status updates, answer and ask questions, and discuss the project. Openness, trust, and friendliness have been the keys to success in my work.
+- Complete satisfaction with the final result. I treat each project as unique and with its own set of needs. I will work with you along every step of the way to ensure that there are no surprises, and only satisfaction.
+
+
 Over the course of 10 years I have worked with a vast amount of technologies.
 
 Main Skills:
